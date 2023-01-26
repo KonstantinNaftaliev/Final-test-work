@@ -1,0 +1,1 @@
+![Блок схема](https://psv4.userapi.com/c237131/u78091963/docs/d28/9da59daaa2d1/1.jpg?extra=f8bmyFJVpXa_RTm33Tc0CDRLYS8ksngs6PG3XSwEunJ_LusDNEZhEkro6eK5k-jruW0qvDBSP8Cb4KdWVXHl60pjcLJq7DJbqNbRS9JZ7vN_CyutmfV7qQ3Erl71RrbK98ZY2B-h7lprjUgz-ncPocU)
